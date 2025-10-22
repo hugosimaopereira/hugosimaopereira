@@ -29,7 +29,7 @@ Transforming ideas into intelligent solutions through code and creativity.
 
 ### 🌐 Connect
 
-[Website](https://hugsimaopereira.com) • [LinkedIn](https://linkedin.com/in/hugosimaopereira) • [Instagram](https://instagram.com/hugosimaopereira)
+[Website](https://hugosimaopereira.com) • [LinkedIn](https://linkedin.com/in/hugosimaopereira) • [Instagram](https://instagram.com/hugosimaopereira)
 
 ---
 
